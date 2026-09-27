@@ -1,2 +1,1 @@
-https://raw.githubusercontent.com/USERNAME/REPOSITORY/main/1000333746.jpg
-
+1# Stay Gold Oshi btw nice too me y'all
