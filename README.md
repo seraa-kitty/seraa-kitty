@@ -1,6 +1,4 @@
-https://pin.it/21dZtxB2c
-
-seraa_kitty intro :333 :PPP
+𑣲⋆seraa_kitty intro :333 :PPP
 
 ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
 
